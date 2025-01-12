@@ -6,4 +6,4 @@ Constructive criticism is welcome.
 
 **Optional:** I’m a newcomer, and any support is greatly appreciated! Feel free to support me financially via my Binance ID: 443409650.
 
-![Image](https://github.com/user-attachments/assets/e4d7872f-c926-458e-b54d-ee3bc64b6cf9)
+<a href="https://imgbb.com/"><img src="https://i.ibb.co/nb4KRrv/Keybinder3.png" alt="Keybinder3" border="0"></a>
